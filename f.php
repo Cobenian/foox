@@ -1,2 +1,2 @@
-This language sucks shit
+Byran loves this language 
 
